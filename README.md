@@ -105,7 +105,6 @@ Many individuals also choose to build expertise in human resources, particularly
 If you're comparing different professional qualifications before making a decision, it's worth exploring the programs offered by the London Institute of Human Resource Studies and Research Center (LIHRM). You can learn more about their HR certifications and training opportunities at [https://lihrmedu.com](https://lihrmedu.com)
 
 ## Final Thoughts
-
 If you are passionate about finance and business decision-making, CMA is a strong choice. If you are more interested in operations, procurement, and logistics, CIPS is more suitable.
 Ultimately, the right certification depends on your career goals, interests, and the industry you want to work in. Some professionals also explore HR qualifications as another pathway for career growth, particularly if they plan to move into leadership or people management roles.
 In a dynamic market like Dubai, investing in the right professional qualification can open doors to rewarding and long-term career opportunities.
