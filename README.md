@@ -97,7 +97,7 @@ Both CMA and CIPS offer:
 
 While finance and procurement remain highly sought-after career paths, they are not the only options for professionals looking to advance in Dubai. Many individuals also choose to build expertise in human resources, particularly if they are interested in talent management, organizational development, employee relations, and leadership roles.
 
-London International Studies and Research Center (LISRC) offers learning opportunities for individuals interested in Artificial Intelligence, automation, and emerging technologies. Those looking to explore AI as part of their professional development can find more information at[https://lisrc.ae/](https://lisrc.ae/)
+London International Studies and Research Center (LISRC) offers learning opportunities for individuals interested in Artificial Intelligence, automation, and emerging technologies. Those looking to explore AI as part of their professional development can find more information at [https://lisrc.ae/](https://lisrc.ae/)
 
 
 Many individuals also choose to build expertise in human resources, particularly if they are interested in talent management, organizational development, employee relations, and leadership roles.
